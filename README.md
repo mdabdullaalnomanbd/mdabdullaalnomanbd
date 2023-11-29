@@ -1,5 +1,5 @@
-This is Md.Abdulla Al Noman.I'm from Magura at Bd.
-## I am a student of Govt. H H S College,Magura.
+This is Md.Abdulla Al Noman.I'm from Magura at Bangladesh.
+## I am a student of SHNIYD.
 খুব ছোটবেলা হারিয়ে গিয়েছিলাম এক ভরদুপুরে। বাড়ি ফেরার সেকি ছিল প্রাণান্তর প্রচেষ্টা। ধুকধুকে ছোট্ট হৃদয়টা, চিৎকার করে কেঁদেছিল সেদিন। পৃথিবীর সবাইকে জানিয়ে দিতে-বাড়ি ফিরে যেতে চাই।
 সেদিনই প্রথম ভেবেছিলাম - আমাকে বড় হতেই হবে। বাড়ি ফিরবো একা, এতোটাই বড়।
 আজ আমি অনেক বড় হয়েছি। ভুল বানানে লিখা ঠিকানায়, পৌঁছে যেতে পারি ঠিকঠাক।
