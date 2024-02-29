@@ -1,5 +1,5 @@
 This is Md.Abdulla Al Noman.I'm from Magura at Bangladesh.
-## I am a student of SHNIYD.
+## I am a student of SHNIYD department in ICT.
 
 ![I am student of Govt. H H S College,Magura.](https://arturssmirnovs.github.io/github-profile-readme-generator/images/banner.png)
 
